@@ -1,2 +1,0 @@
-# Humble.github.io
-Pages
